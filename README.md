@@ -1,0 +1,1 @@
+This program will kill your windows in one minute! __AUTHOR IS NOT RESPONSIBLE FOR THIS PRORGAM EXECUTION! FOR EDUCATION PURPOSES ONLY!
